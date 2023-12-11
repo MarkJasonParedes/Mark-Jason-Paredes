@@ -26,5 +26,5 @@ I am a passionate coder with a strong background in information technology and a
 
 ## Connect with Me
 
-- **LinkedIn:** [LinkedIn Profile](linkedin-profile-link)
+- **LinkedIn:** [LinkedIn Profile](https://www.linkedin.com/in/mark-jason-paredes-6007152a4/)
 - **Email:** mjason0029@gmail.com
