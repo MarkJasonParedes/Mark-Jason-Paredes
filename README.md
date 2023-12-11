@@ -27,4 +27,4 @@ I am a passionate coder with a strong background in information technology and a
 ## Connect with Me
 
 - **LinkedIn:** [LinkedIn Profile](linkedin-profile-link)
-- **Email:** juandelacruz@gmail.com
+- **Email:** mjason0029@gmail.com
